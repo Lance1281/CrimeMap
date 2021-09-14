@@ -1,1 +1,1 @@
-## Area's
+## Map Locations
